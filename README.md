@@ -1,7 +1,9 @@
-**Gooddd Day** 🧢
+**Ello**
 
-you have found an **interesting developer**
+British Developer, coffee, programming and time with my own thoughts is all i need.
 
-with a lack of capitalisation
+If you like what i do, feel free to get in contact.
 
-and saying youre without the "**'**"
+I also made this platform: https://kaer.ai, feel free to check it out. 
+
+Portfolio: https://imichael.net
